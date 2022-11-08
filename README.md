@@ -1,5 +1,5 @@
 ### Hi there 👋
-Soy Sergio!
+I'm Sergio!
 
 - 🔭 I’m currently working on Universidad de La Laguna
 - 🌱 I’m currently learning teching
